@@ -15,6 +15,6 @@ Good day, i'm **Princess Genea R. Umali** :wave:
     • ☎️ Contact Number: **0960 6512 486**
     
 
-📖 ***"Everybody should learn to program a computer, because it teaches you how to think."*** - Steve Jobs
+📖 *"Everybody should learn to program a computer, because it teaches you how to think."* - **Steve Jobs**
 
   
