@@ -9,7 +9,7 @@ Good day, i'm **Princess Genea R. Umali** :wave:
     • 🩷 Interested in **UI/US Design**
     
 
-📞 ***Contact Infroation:***
+📞 ***Contact Informations:***
 
     • 📬Email: **genea.umali@gmail.com**  
     • ☎️ Contact Number: **0960 6512 486**
