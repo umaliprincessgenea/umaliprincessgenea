@@ -9,7 +9,7 @@ ________________________________________________________________________________
  
  • 🎯 Goal: To be a proficient **Web and Software Developer, and IT Project Manager** 
  
- • 🩷 Interested in **UI/US Design**
+ • 🩷 Interested in **UI/UX Design**
 
 __________________________________________________________________________________________
     
